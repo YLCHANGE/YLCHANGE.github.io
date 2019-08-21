@@ -1,2 +1,2 @@
-# Welcome to sSay's blog!
-#### Thanks to 0936zz, this blog was built successfully.
+# Welcome to YLCH's blog!
+#### Thanks to someone who are the bestin my heart, this blog was built successfully.
